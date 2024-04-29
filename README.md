@@ -5,7 +5,7 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=arunlorenz" alt="arunlorenz" /></a> </p>
 
-- 📫 How to reach me **arunkumarns543@gmail.com**
+- 📫 Contact: **arunkumarns543@gmail.com**
 
 - 📄 Know about my experiences  [Resume](https://drive.google.com/file/d/1hwBQSy5Y6lG4vfdrQDfBuKdkEk7US6PI/view?usp=sharing)
 

@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **arunkumarns543@gmail.com**
 
-- 📄 Know about my experiences [resume](https://drive.google.com/file/d/1hwBQSy5Y6lG4vfdrQDfBuKdkEk7US6PI/view?usp=sharing)
+- 📄 Know about my experiences  [Resume](https://drive.google.com/file/d/1hwBQSy5Y6lG4vfdrQDfBuKdkEk7US6PI/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
